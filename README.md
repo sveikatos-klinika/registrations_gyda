@@ -1,1 +1,2 @@
-# UAB Alicija ir partneriai
+# Pilaitės šeimos sveikatos namai „Gyda“
+# (UAB „Alicija ir partneriai“)
